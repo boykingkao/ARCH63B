@@ -1,6 +1,3 @@
 # ARCH63B
-"# ARCH63B" 
-sawaddee kub
-sumet kongkaew
 
-sasasasasasaasdlaskdlasdksadlasdsa
+1. CLIP1 <https://www.youtube.com/watch?v=czkfKyXbKvg>
