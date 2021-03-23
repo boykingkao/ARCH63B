@@ -1,6 +1,6 @@
 # COMPUTER ARCHITECTURE
 
-1. CLIP1 <>
+1. CLIP1 ----
 
 2. CLIP2 <https://www.youtube.com/watch?v=ZfAS5cQgJDM>
 
